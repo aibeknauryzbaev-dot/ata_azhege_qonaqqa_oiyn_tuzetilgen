@@ -1,0 +1,2 @@
+# ata_azhege_qonaqqa_oiyn_tuzetilgen
+ata_azhege_qonaqqa_oiyn_tuzetilgen
